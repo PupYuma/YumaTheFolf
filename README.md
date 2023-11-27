@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @LabyChat
+- 👋 Hi, I’m @YumaTheFolf
 - 📫 How to reach me 
-Discord: LabyChat#0001
-Steam: /LabyChat
+Discord: YumaTheFolf
+Steam: /YumaTheFolf
