@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @YumaTheFolf
+- 👋 Hi, I’m @PupYuma
 - 📫 How to reach me 
-Discord: YumaTheFolf
-Steam: /YumaTheFolf
+Discord: @PupYuma
+Steam: /PupYuma
